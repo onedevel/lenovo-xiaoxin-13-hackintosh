@@ -1,0 +1,1 @@
+# lenovo-xiaoxin-13-hackintosh
